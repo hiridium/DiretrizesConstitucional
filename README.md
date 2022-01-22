@@ -7,7 +7,7 @@ Doar Para:
 A Constituinte de 87-88 não foi democratica afinal vivíamos a transição da ditadura militar para a democracia. Por isso, a decisão por uma nova Constituição e a formação da  Assembleia que a redigiu não contou com a participação direta da população.
 Sabendo disso, nós os povos do Brasil decidimos que uma constituição devera ser Promulgada.
 
-I - E devera seguir os principios da lei Natural, do direito a propriedade, a liberdade individual do ser e os seguintes;
+I - E devera seguir os principios da Lei Natural, do direito a propriedade, a liberdade individual do ser e os seguintes;
 
 II - Ao longo do processo constituinte uma Assembleia constituinte sera criada. 
 
